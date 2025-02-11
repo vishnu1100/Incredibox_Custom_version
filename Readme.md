@@ -4,6 +4,6 @@
 
 [![Watch the video](https://img.youtube.com/vi/LJb5x1kY_yQ/0.jpg)](https://youtu.be/LJb5x1kY_yQ)  
 
-[📥 Download Incredibox Custom Android Version](https://github.com/vishnu1100/Incredibox_Custom_version/raw/refs/heads/main/Android_version/IncrediBox_custom.apk)
+[📥 Download Incredibox Custom Android Version](https://1024terabox.com/s/13Iil8pEO-b2lJuZbDPoXNQ)
 
-[📥 Download Incredibox Custom Windows Version](https://example.com/download-link)
+[📥 Download Incredibox Custom Windows Version](https://1024terabox.com/s/1QGJzouRtci9ndT2qq7awoA)
